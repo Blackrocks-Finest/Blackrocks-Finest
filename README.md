@@ -8,7 +8,7 @@
  I am currently undergoing the learning of artistic abilities, make things more interesting!
 -
  I used to have someone who worked with me, but...
- ...I would rather not work with that traitor ever again!
+ ...I would rather not talk about our current relationship!
 - 
  You can reach me via the game Pony.Town or on Discord at rotten_core_.
 - 
