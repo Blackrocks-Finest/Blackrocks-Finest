@@ -1,20 +1,32 @@
- Why hello again! Or hello there if you're new!
+ Good morning, afternoon, or whatever time it is for you.
 -
- Name: I am Dr. Subspace T.Mine, or just Subspace would work!
+ Name: I am Dr. Subspace T.Mine, or Subspace, if you didn't know that already.
 -
  I am the current head scientist at Blackrock...
- ...Current interests are poisons, crystals, robots, and more!
+ ...Although, interests have changed.
 -
- I am currently undergoing the learning of artistic abilities, make things more interesting!
+Interested in: Art, writing, crystals, mechanics/robots, and other science.
 -
- I used to have someone who worked with me, but...
- ...I would rather not talk about our current relationship!
-- 
- You can reach me via the game Pony.Town or on Discord at rotten_core_.
-- 
- I see Pronouns as a silly and useless thing, but I'll use any of them!
-- 
- The DNI things are the usual, and if people want to chat with me they can.
+ With a growing interest in creativity, future endevors are slowly becoming more intriquet.
 -
-  You can find me if you know where to look.
+ Current partner does not understand how my mind is, but otherwise things are normal.
+ ...please pray that he doesn't disect my brain in the near future.
+- 
+ Reaching me through Pony.town is easiest, but I am also on Discord at ...
+ futile_errorz
+- 
+ Pronouns are odd, but I use It/He/They ones.
+- 
+ I prefer my DNI criteria to be the cassual ones.
+-
+ In pony.town I am either at the docks, phighting zone, lower-beach, or party island. 
+-
+.
+-
+.
+-
+.
+-
+I am a system, and Dandy's world alters front more often as of recent.
+You may call us Liam, Yunia, Tempest, B.Haz, Petal, or by whoever fronts.
 -
