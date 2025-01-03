@@ -28,5 +28,5 @@ Interested in: Art, writing, crystals, mechanics/robots, and other science.
 .
 -
 I am a system, and Dandy's world alters front more often as of recent.
-You may call us Liam, Yunia, Tempest, B.Haz, Petal, or by whoever fronts.
+You may call us Liam, Yunia, Tempest, B.Haz, Petal, Subspace, or by whoever fronts.
 -
