@@ -1,33 +1,14 @@
- Good morning, afternoon, or whatever time it is for you.
+bl4ckrockz-f1nest --------------------------------------------------
+- UpTime: . . . . . . . . . . . . . . . . . . . . . . . . 5 Years
+- Host: . . . . . . . . . . . . . . . . . . . . .  .. . . 17 Years
+- StartDate: . . . . . . . . . . . . . . . . . . . . . 11.06.2020
 -
- Name: I am Dr. Subspace T.Mine, or Subspace, if you didn't know that already.
+- Languages.Real: . . . . . . . . . . . . . . . . . English, Spanish
+- Languages.Programming: . . . . . . . . . . . . . Java, Python, C++
 -
- I am the current head scientist at Blackrock...
- ...Although, interests have changed.
+- Hobbies.Software: . . . . . . . . . . Roblox, Minecraft, ULTRAKILL
+- Hobbies.Offline: . . . . . . . . . . Art, Mechanics, Reading, ETC.
 -
-Interested in: Art, writing, crystals, mechanics/robots, and other science.
--
- With a growing interest in creativity, future endevors are slowly becoming more intriquet.
--
- Current partner does not understand how my mind is, but otherwise things are normal.
- ...please pray that he doesn't disect my brain in the near future.
-- 
- Reaching me through Pony.town is easiest, but I am also on Discord at ...
- futile_errorz
-- 
- Pronouns are odd, but I use It/He/They ones.
-- 
- I prefer my DNI criteria to be the cassual ones.
--
- In pony.town I am either at the docks, phighting zone, lower-beach, or party island. 
--
-.
--
-.
--
-.
--
-I am a system, and Dandy's world alters front more often as of recent.
-You may call us Minus, Dove, Atlas, Subspace, or by whoever fronts.
-Unless stated otherwise.
--
+- Contact -------------------------------------------------------
+- Discord: . . . . . . . . . . . . . . . . . . . . .tr1dentz.ke3p.
+- Roblox: . . . . . . . . . . . . . . . . . . . . . . . @SsBlue_z
