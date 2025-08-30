@@ -9,6 +9,6 @@ bl4ckrockz-f1nest --------------------------------------------------
 - Hobbies.Software: . . . . . . . . . . Roblox, Minecraft, ULTRAKILL
 - Hobbies.Offline: . . . . . . . . . . Art, Mechanics, Reading, ETC.
 -
-- Contact -------------------------------------------------------
-- Discord: . . . . . . . . . . . . . . . . . . . . .tr1dentz.ke3p.
-- Roblox: . . . . . . . . . . . . . . . . . . . . . . . @SsBlue_z
+Contact -------------------------------------------------------------
+- Discord: . . . . . . . . . . . . . . . . . . . . . . .tr1dentz.ke3p.
+- Roblox: . . . . . . . . . . . . . . . . . . . . . . . . . @SsBlue_z
